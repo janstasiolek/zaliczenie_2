@@ -1,2 +1,1 @@
-# zaliczenie_2
-Poprawa kolokwium
+Jan Stasiołek Uniwersytet Pomorski w Słupsku
