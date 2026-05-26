@@ -1,1 +1,1 @@
-Jan Stasiołek Uniwersytet pomorski w Słupsku
+Jan Stasiołek Uniwersytet Pomorski w Słupsku
